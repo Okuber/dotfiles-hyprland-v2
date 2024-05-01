@@ -1,7 +1,7 @@
 
 # NEW HYPRLAND RICE WHOOOOOO
 
-![img](./rose-pine.jpg)
+![img](./20240430_19h33m49s_grim.png)
 
 ### yes ive been inactive here for far too long 
 ### but here have a new rice
